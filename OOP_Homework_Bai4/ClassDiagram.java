@@ -1,0 +1,1 @@
+//Link ve diagram: https://drive.google.com/file/d/1WpXU0VQAIMnLQZJ8b_UAgas6Eb4rDqvy/view?usp=sharing 
